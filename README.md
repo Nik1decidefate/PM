@@ -6,3 +6,4 @@
 ## [ПП.04](https://disk.yandex.ru/d/aar7uOnY7iLFrw)
 ## [УП.02](https://disk.yandex.ru/d/vAiN12cfXO_glA)
 ## [УП.04](https://disk.yandex.ru/d/6KnRoOAed4LWTA)
+## [Спец курс](https://disk.yandex.ru/d/XsSO_KYay4dowg)
